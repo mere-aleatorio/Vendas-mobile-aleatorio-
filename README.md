@@ -1,1 +1,0 @@
-# Vendas-mobile-aleatorio-
